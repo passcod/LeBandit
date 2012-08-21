@@ -55,13 +55,13 @@ Chapitre Æ
 Je ferme les yeux. Jade a raison, bien sùr, mais ça ne change rien au problème. Sali et Finn sont trop fatiguées pour bouger, et le groupe s'est probablement déjà arrèté. C'est l'hiver, mais pourvu que ce ne soit pas trop couvert, le soleil devrait aider. Il y a une épaisseur de neige à courte distance de la route qui pourrait être utilisée pour construire un abri isolant, et, quoique bas, ce serait leur meilleur chance. Malheureusement, les règles du parcours ne permettant aucun mouvement durant le jour, ils seraient coincés, à quelques pas de l'arrivée, sans pain ni eau, à attendre l'obscurité. Je ne souhaiterai telle agonie à personne. Je soupire, ouvre les yeux, et souri un peu : Jade, me connaissant apparament plus que je ne me connais moi-même, a déjà démarré et fait les préparatifs pour y aller. Elle me tent un chocolat chaud.
 
 — On y va ?  
-— On y va. Crayonne-nous pour une session en été d'accord ?  
+— On y va. Crayonne-nous pour une session en été, d'accord ?  
 — Ha ! On verra. Tu me doit toujours quelques faveurs, et je ne suis pas le crédit suisse !  
 — OK, ok. Je t'attraperais des friandises.  
 — Et ?  
 — Et j'y travaille. Je n'ai pas oublié.  
 
-Elle me fixe pendant un moment, puis embraye et met la radio. Un air de très mauvais jazz empli la cabine, me faisant froncer involontairement, ce qui a l'air de l'enchanter, car elle appuie sur l'accélérateur d'un *swing* joyeux.
+Elle me fixe pendant un moment, puis embraye et met la radio. Un air de très mauvais jazz empli la cabine, me faisant froncer involontairement, ce qui a l'air de l'enchanter.
 
 
 ...
